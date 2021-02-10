@@ -1,0 +1,1 @@
+* https://kazimirzet.github.io/rsschool-cv/cv
